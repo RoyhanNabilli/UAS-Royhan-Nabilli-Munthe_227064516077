@@ -1,0 +1,1 @@
+LINK YOUTUBE PENJELASAN : https://youtu.be/B_FHTw-w1K8
